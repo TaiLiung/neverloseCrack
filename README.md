@@ -1,1 +1,2 @@
-# neverloseCrack
+# neverlose Cracked
+АХАХХА ЧЕЛ ЧЕГО ТЫ ХОТАЕЛ КАКОЙ КРЯК НЕВЕРЛУЗа?
